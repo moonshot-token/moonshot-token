@@ -2,14 +2,12 @@ MoonShot Token - Presale January 14th | Reflexions for holders | Upcoming NFT ga
 
 ✅ Marketing About To Start
 
-✅ Weekly Super Draws With BNB Rewards
-
 ✅ High BNB Rewards For All Holders
 
 Upcoming Presale On PinkSale: January 14th
 
 TOTAL SUPPLY: 1,000,000,000,000,000 
-51% Of All Supply Burned On Release
+55.18% Of All Supply Burned On Release
 
 🔒 LP LOCKED
 
@@ -18,13 +16,9 @@ TOTAL SUPPLY: 1,000,000,000,000,000
 ▪️6% buy-back tax
 ▪️No dev tokens
 
-You participate in the Drawing of 1000 dollars among 5 winners, just by following us in our networks.
-
 📝 MoonShot Contract: 0xae201C4f2D278659dB85ef0A9dc92AF2140C9421
 
 ✨ MoonShot Is An Hyperdeflationary Token
-
-🌕 Don’t Forget To Vote For Us On Listings Sites 🌕 
 
 💎 All decisions 100% made by the community
 
